@@ -1,0 +1,1 @@
+# Exerc-cios-Programa-o-e-Algor-timos-Etec-2026-
